@@ -1,1 +1,1 @@
-﻿# M2-Challenge-Diaz-Nicholas
+﻿# M2-Challenge-Diaz-Nichols
